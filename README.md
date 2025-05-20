@@ -12,7 +12,12 @@
 ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤ
 
 # 💫 About Me:
-feefeqjoewgjwejeq
+19!
+
+always will interact back <3
+
+your all perfect in ur own 
+bittersweet ways.
 
 
 ## 🌐 Socials:
