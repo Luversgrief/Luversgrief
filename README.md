@@ -19,7 +19,7 @@ Please do not tease me for anything unless you are a good friend of mine.
 
 
 always will interact back unless you 
-fit in the criteria below
+fit in the criteria below ↓
 
 
 Dni if: Political, homophobic, racist, 
