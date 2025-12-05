@@ -17,7 +17,7 @@ _“(Maddy/Mads/Madilynn)*_ ✩°｡ ⋆⸜ 🎧✮
 19!
 
 I suffer from: Anxiety, Social Anxiety, ADHD, Depression, 
-Please do not tease me for anything unless you are a good friend of mine.
+
 
 
 always will interact back unless you 
@@ -25,7 +25,7 @@ fit in the criteria below ↓
 
 
 Dni if: Political, homophobic, racist, 
-a troll, abelist, rude to anyone I care for.
+a troll, abelist
 
 
 your all perfect in ur own 
