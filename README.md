@@ -1,6 +1,7 @@
 “(Maddy/Mads/Madilynn)* ✩°｡ ⋆⸜ 🎧✮
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/02a37918-fff8-4652-9b07-5f6e875e49af" />
+<img width="462" height="462" alt="image" src="https://github.com/user-attachments/assets/a70a1882-beb2-4163-a946-2ce3126c9042" />
+
 
 
 
