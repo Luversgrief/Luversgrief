@@ -33,7 +33,7 @@ your all perfect in ur own
 bittersweet ways.
 
 
-<img width="813" height="213" alt="image" src="https://github.com/user-attachments/assets/7a09a49e-5f91-4a32-be3f-76522c6bdb16" />
+
 
 
 
