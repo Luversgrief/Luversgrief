@@ -17,7 +17,7 @@ Strawpage: https://imaunicorn3.straw.page
 # 💫 About Me:
 15!
 
-I suffer from: Anxiety, Social Anxiety, ADHD, Depression, 
+I am currently just coming back to ponytown so pls befriend me! 
 
 
 
